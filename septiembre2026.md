@@ -12,7 +12,7 @@
 | - | - | - |
 | Mañana | Viaje al Portal La Armonía | Viaje de aprox. de 7 h. Registrarse en el destacamento La Armonía (permiso de ingreso y estado de caminos). El límite de velocidad adentro es 40 km/h y el horario, de 8 a 18. |
 | Tarde | Sin planificar aún | Desde La Armonía, un camino de tierra de unos 22 km te lleva hasta el río Bermejo. En el trayecto la parada clásica es el palo borracho gigante para la foto. |
-| Noche | **Glamping** Portal La Armonía<br><br>**Parador** Don Esteban | **Glamping**<br>...<br>**Parador**<br>Ubicado en la puerta de entrada al Pque. Nac. El Impenetrable<br>Estela y Esteban ofrecen una experiencia de alojamiento local<br> 🛏️ Capacidad para 4 huéspedes. 🚿 Baño privado y ropa de cama. ☕ Incluye desayuno casero<br>⁠Tarifa por persona: $ 30.000. Consultas y reservas +54 9 364 459-8581 |
+| Noche | **Glamping** Portal La Armonía<br><br>**Parador** Don Esteban | **Glamping**<br>Standard: $200.000 por noche por carpa<br>Superior: $210.000 por noche por carpa<br>Con desayuno. No válidas xa feriados y/o fines de semana largos.<br>**Parador**<br>Ubicado en la puerta de entrada al Pque. Nac. El Impenetrable<br>Estela y Esteban ofrecen una experiencia de alojamiento local<br> 🛏️ Capacidad para 4 huéspedes. 🚿 Baño privado y ropa de cama. ☕ Incluye desayuno casero<br>⁠Tarifa por persona: $ 30.000. Consultas y reservas +54 9 364 459-8581 |
 
 ## Día 3
 
