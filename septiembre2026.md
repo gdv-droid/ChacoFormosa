@@ -1,39 +1,40 @@
-# Planificación viaje al Impenetrable y Bañado la Estrella
+# Planificación viaje a El Impenetrable y Bañado la Estrella
 ## Día 1: vi. 04/09
 
 | Hora | Actividad | Detalles |
 | - | - | - |
-| Mañana | Viaje a Resistencia | Viaje de aprox. de 12 / 13 h |
-| Noche | Gala Hotel & Coventions. Tel. 362 445-2400<br>(Ruta Nac. 11 km 1.003; frente al acceso al aeropuerto) | ⁠Hab. SINGLE TWIN DELUXE $ 98.307.00 (-5%) |
+| Mañana | Viaje a Resistencia | Duración: 12 / 13 h |
+| Noche | Gala Hotel & Coventions. Tel. 362 445-2400<br>Ruta Nac. 11 km 1.003; frente al acceso al aeropuerto. | ⁠Hab. SINGLE TWIN DELUXE $ 98.307.00 (-5%) |
 
 ## Día 2: sá. 05/09
 
 | Hora | Actividad | Detalles |
 | - | - | - |
-| Mañana | Viaje al Portal La Armonía | Viaje de 7 h. Registrarse en destacamento para permiso ingreso y estado caminos).<br>El límite de velocidad adentro es 40 km/h. Horario: 8 a 18. |
+| Mañana | Viaje al Portal La Armonía | Duración: 7 h. Registrarse en destacamento para permiso ingreso y estado caminos.<br>El límite de velocidad adentro es 40 km/h. Horario: 8 a 18 h. |
 | Tarde | Sin planificar aún | Desde La Armonía, un camino de tierra de unos 22 km te lleva hasta el río Bermejo.<br>En el trayecto la parada clásica es el palo borracho gigante. |
-| Noche | **Glamping** Portal La Armonía<br><br>**Parador** Don Esteban | **Glamping**<br>Standard: $200.000 por noche por carpa<br>Superior: $210.000 por noche por carpa<br>Con desayuno. No válidas xa feriados y/o fines de semana largos.<br>**Parador**<br>Ubicado en la puerta de entrada al Pque. Nac. El Impenetrable<br>Estela y Esteban ofrecen una experiencia de alojamiento local<br> 🛏️ Capacidad para 4 huéspedes. 🚿 Baño privado y ropa de cama. ☕ Incluye desayuno casero<br>⁠Tarifa por persona: $ 30.000. Consultas y reservas +54 9 364 459-8581 |
+| Noche | **Parador San Esteban**<br>Puerta de entrada al parque | Estela y Esteban: +54 9 364 459-8581<br>🛏️ Capacidad para 4 huéspedes. 🚿 Baño privado y ropa de cama.<br>☕ Incluye desayuno casero. ⁠Tarifa por persona: $ 30.000.<br> El baño no es privado pero es para los turistas, hay internet y aire acondicionado.|
 
 ## Día 3: dom. 06/09
 
 | Hora | Actividad | Detalles |
 | - | - | - |
-| Día completo | Sin planificar aún | **Senderos** (todos de baja dificultad, autoguiados o con guía de sitio): El Sendero de la Selva (bosque de timbó blanco) y el Pozo del Yacaré, que termina en dos miradores sobre lagunas donde suelen verse tapires y osos hormigueros. También el Riacho Chico y el mirador sobre el Bermejo.<br>**Navegación** en lancha por el río Bermejo desde el Portal La Fidelidad: es de las mejores actividades para avistaje de fauna. También hay kayak por el Bermejito desde La Armonía, con guías de la Asociación de Vecinos.<br>**Fauna**: acá el tapir es abundante y fácil de ver, junto con oso hormiguero gigante, pecaríes, corzuelas, monos, yacarés y unas 350 especies de aves (chuñas, charatas, loros habladores). Con suerte, algún yaguareté, símbolo del proyecto de reintroducción. |
-| Noche | Alojamiento en ? | . |
+| Día completo | Senderos, navegación y/o fauna. | **Senderos** (todos de baja dificultad, autoguiados o con guía de sitio): El Sendero de la Selva (bosque de timbó blanco) y el Pozo del Yacaré, que termina en dos miradores sobre lagunas donde suelen verse tapires y osos hormigueros. También el Riacho Chico y el mirador sobre el Bermejo.<br>**Navegación** en lancha por el río Bermejo desde el Portal La Fidelidad: es de las mejores actividades para avistaje de fauna. También hay kayak por el Bermejito desde La Armonía, con guías de la Asociación de Vecinos.<br>**Fauna**: acá el tapir es abundante y fácil de ver, junto con oso hormiguero gigante, pecaríes, corzuelas, monos, yacarés y unas 350 especies de aves (chuñas, charatas, loros habladores). Con suerte, algún yaguareté, símbolo del proyecto de reintroducción. |
+| Noche | Alojamiento en **Parador San Esteban** | . |
 
 ## Día 4: lu. 10/09
 
 | Hora | Actividad | Detalles |
 | - | - | - |
-| Día | Travesía 4x4 | Marcelino Braun (Hotel Emmanuel) es el baqueano histórico de la zona. También la **Misión Nueva Pompeya** (iglesia franciscana de 1900, con artesanías wichís) y un taller de tejido con Rubén y Veda, camino a Nueva Población. |
-| Noche | Alojamiento en ? | . |
+| Mañana | Desayuno | **Misión Nueva Pompeya** (iglesia franciscana de 1900, con artesanías wichís) y un taller de tejido con Rubén y Veda, camino a Nueva Población.<br>O tal vez, algún pendiente. |
+| Tarde | Viaje a Las Lomitas | Viaje de 7 h. Asfalto (Castelli → RN95 → RN81), ~400–450 km. Confirmar estado RN95 |
+| Noche | Alojamiento en Hotel Eva | 1 hab. triple $ 60.000 por noche |
 
 ## Día 5: ma. 11/09
 
 | Hora | Actividad | Detalles |
 | - | - | - |
-| Mañana | Viaje a Las Lomitas | Viaje aprox. de 7 h. Traslado por asfalto (Castelli → RN95 → RN81), ~400–450 km. Confirmar estado RN95 |
-| Tarde | Instalarnos y conocer el pueblo | |
+| Mañana | Desayuno | Tal vez, algún pendiente. |
+| Tarde | Viaje a Las Lomitas | Viaje de 7 h. Asfalto (Castelli → RN95 → RN81), ~400–450 km. Confirmar estado RN95 |
 | Noche | Alojamiento en Hotel Eva | 1 hab. triple $ 60.000 por noche |
 
 ## Día 6
