@@ -1,16 +1,16 @@
 # Planificación viaje al Impenetrable y Bañado la Estrella
-## Día 1
+## Día 1: vi. 04/09
 
 | Hora | Actividad | Detalles |
 | - | - | - |
 | Mañana | Viaje a Resistencia | Viaje de aprox. de 12 / 13 h |
-| Noche | Gala Hotel & Coventions | ⁠HAB. SINGLE TWIN DELUXE $ 98.307.00<br>HAB. DOBLE TWIN DELUXE $ 112.336,00<br>HAB. MATRIMONIAL CON TWIN BED $ 134.818,00 (apto tres adultos)<br>Gestionando su reserva anticipada obtiene un 5% dto!<br>Abona en destino / Cancelación gratuita.<br>TARIFAS  INCLUYEN (21%) IVA / PRECIOS x NOCHE x HABITACIÓN |
+| Noche | Gala Hotel & Coventions (Ruta Nac. 11 km 1.003; frente al acceso al aeropuerto) | ⁠Hab. SINGLE TWIN DELUXE $ 98.307.00 (-5%). Tel. 362 445-2400 |
 
-## Día 2
+## Día 2: sá. 05/09
 
 | Hora | Actividad | Detalles |
 | - | - | - |
-| Mañana | Viaje al Portal La Armonía | Viaje de aprox. de 7 h. Registrarse en el destacamento La Armonía (permiso de ingreso y estado de caminos). El límite de velocidad adentro es 40 km/h y el horario, de 8 a 18. |
+| Mañana | Viaje al Portal La Armonía | Viaje aprox. de 7 h. Registrarse en destacamento La Armonía (permiso de ingreso y estado de caminos). El límite de velocidad adentro es 40 km/h. Horario: 8 a 18. |
 | Tarde | Sin planificar aún | Desde La Armonía, un camino de tierra de unos 22 km te lleva hasta el río Bermejo. En el trayecto la parada clásica es el palo borracho gigante para la foto. |
 | Noche | **Glamping** Portal La Armonía<br><br>**Parador** Don Esteban | **Glamping**<br>Standard: $200.000 por noche por carpa<br>Superior: $210.000 por noche por carpa<br>Con desayuno. No válidas xa feriados y/o fines de semana largos.<br>**Parador**<br>Ubicado en la puerta de entrada al Pque. Nac. El Impenetrable<br>Estela y Esteban ofrecen una experiencia de alojamiento local<br> 🛏️ Capacidad para 4 huéspedes. 🚿 Baño privado y ropa de cama. ☕ Incluye desayuno casero<br>⁠Tarifa por persona: $ 30.000. Consultas y reservas +54 9 364 459-8581 |
 
